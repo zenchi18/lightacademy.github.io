@@ -1,1 +1,0 @@
-# lightacademy.github.io
